@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cartier-Frisson
+- 👀 I’m interested in ...  growing vegetables, writing fiction, learning.
+- 🌱 I’m currently learning ... everything, basically
+- 💞️ I’m looking to collaborate on ... eh.
+- 📫 How to reach me ... 
